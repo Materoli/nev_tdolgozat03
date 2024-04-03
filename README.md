@@ -1,1 +1,0 @@
-# nev_tdolgozat03
